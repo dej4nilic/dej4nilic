@@ -6,7 +6,7 @@
 
 💞️ I’m looking to collaborate on innovative creative projects that merge technology with art, especially in the realms of game design, animation, and immersive installations. I believe that collaboration fosters creativity and leads to extraordinary outcomes.
 
-📫 How to reach me: [dej4nilic@gmail.com] I’m always open to connecting with fellow creatives and exploring new opportunities.
+📫 How to reach me: dej4nilic@gmail.com I’m always open to connecting with fellow creatives and exploring new opportunities.
 
 😄 Pronouns: He/Him
 
